@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @7bx9
+- 👀 I’m interested in Half-Life
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on Half-Life inspired projects
+- 📫 How to reach me on Discord
+- 😄 Pronouns: He/Him
